@@ -5,7 +5,7 @@ I’m an IT / Computer Information Systems international student in Orlando, FL 
 - 🧠 Tech & problem-solving  
 - 🏡 Personal development-neuroscience passionate
 - Proactive lifestyle
-
+- Built to uplift others💖
   
 - 💻 Learning Python, Java & Rust  
 - 📲 Digital tools, social media & automation  
@@ -48,6 +48,6 @@ This gives me real experience in:
 ## 🌐 Let’s Connect
 
 - 💼 [LinkedIn](https://www.amynunezlinkedin.com) <!-
-- 📧 Email: your.email@example.com
+- 📧 Email: amynunez746@gmail.com
 
 Thanks for stopping by! ⭐ If you like my journey, feel free to follow my GitHub.

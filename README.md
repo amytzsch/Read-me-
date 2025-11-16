@@ -41,7 +41,7 @@ This gives me real experience in:
 
 ---
 ## 📝 Personal disclaimer 
-After feeling lost for a while and losing completly my sparkle by personal problems, I am finally recovering myself again. I love learning new tools, exploring creative projects, and collaborating with people who bring positive energy and bold ideas.💻💿💋
+After feeling lost for a while and losing my sparkle due to personal challenges, I’m finally reconnecting with myself again. Every day is a new chance to start and rebuild. I love learning new tools, exploring creative projects, and collaborating with people who bring positive energy and bold ideas. 💻✨💋
 
 ## 📚 Current Focus
 - Reparing my relationship with God🫶🏻

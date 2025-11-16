@@ -44,6 +44,7 @@ This gives me real experience in:
 After feeling lost for a while and losing my sparkle due to personal challenges, I’m finally reconnecting with myself again. Every day is a new chance to start and rebuild. I love learning new tools, exploring creative projects, and collaborating with people who bring positive energy and bold ideas. 💻✨💋
 
 ## 📚 Current Focus
+- Staying off social media - creating before endlessly doomscrolling.
 - Reparing my relationship with God🫶🏻
 - Getting back to journaling + writing poems :)
 - Opening myself more to people, learning to be less shy and not being afraid of setting boundaries.

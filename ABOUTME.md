@@ -1,6 +1,6 @@
 # Read-me-
 # Hi, I’m Amy 👋🏼
-I'm part of girls who code + society of hispanic professional engineers💟
+I'm glad to be part of  Girls Who Code + Society of Hispanic professional engineers💟
 
 I’m an IT / Computer Information Systems international student in Orlando, FL who loves:
 - 🧠 Tech & problem-solving  
